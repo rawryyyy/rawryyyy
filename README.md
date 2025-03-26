@@ -5,7 +5,7 @@
    </br> ummm i'm 17 don't interact if you're under 13 or over 21 pretty please (unless i do first idk)
    </br> PLEASEEEE don't be scared to talk to me, please interact with me i'm awkward but i don't bite... as long as i'm not already talking to someone
    </br> if i don't answer whisper me. if i don't answer i'm probably not looking don't take it personally blame my bad time management skills
-   </br> idk what else to put here look at my bio or my strawpage,,, please sign my ata i want messages hehe
+   </br> idk what else to put here look at my bio or my strawpage,,, please sign my ata i want messages hehe 
    </br>
    </br> if you're curious heres the song i'm listening to - or you could look at my last fm
    </br>
