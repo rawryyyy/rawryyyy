@@ -3,7 +3,7 @@
    hai ponytown i'm rory
    
    </br> ummm i'm 17 don't interact if you're under 13 or over 21 pretty please (unless i do first idk)
-   </br> PLEASEEEE don't be scared to talk to me, please interact with me i'm awkward but i don't bite... as long as i'm not already talking to someone
+   </br> PLEASEEEE don't be scared to talk to me, please interact with me i'm awkward but i don't bite... as long as i'm not already talking to someone and/or my status is not set to busy
    </br> if i don't answer whisper me. if i don't answer then i'm probably not looking don't take it personally blame my bad time management skills
    </br> idk what else to put here look at my bio or my [strawpage](https://rawryyy.straw.page/),,, [please sign my ata](https://rawryyyy.atabook.org/) i want messages hehe 
    </br>
