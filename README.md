@@ -7,7 +7,7 @@
    </br> if i don't answer whisper me. if i don't answer i'm probably not looking don't take it personally blame my bad time management skills
    </br> idk what else to put here look at my bio or my strawpage,,, please sign my ata i want messages hehe
    </br>
-   </br> if you're curious heres the song i'm listening to - or you could see my last fm in my links
+   </br> if you're curious heres the song i'm listening to - or you could look at my last fm
    </br>
    </br> (this is for my own benefit)
 
